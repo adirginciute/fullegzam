@@ -1,1 +1,1 @@
-# fullegzam
+# praktinis-egzaminas
